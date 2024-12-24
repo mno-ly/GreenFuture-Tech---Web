@@ -1,0 +1,1 @@
+GreenFuture Tech is at the forefront of sustainable agriculture, offering innovative solutions like precision farming, IoT-enabled monitoring, and eco-friendly hydroponic systems. Our goal is to transform farming practices, ensuring a greener, more productive future for everyone.
